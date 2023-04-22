@@ -1,5 +1,5 @@
 # 💫 About Me:
-🔭 I’m currently working on Machine Learning and Deep Learning<br>💬 Ask me about programming or algorithms<br>⚡ Fun fact- I like anime
+🔭 I’m currently working on Machine Learning and Deep Learning<br>💬 Ask me about anything!<br>
 
 
 ## 🌐 Socials:
